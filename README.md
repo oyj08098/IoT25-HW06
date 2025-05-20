@@ -19,3 +19,9 @@ site
 ![image](https://github.com/user-attachments/assets/3722563b-0adc-420a-bf99-33b5d3d1762e)
 
 control
+
+![image](https://github.com/user-attachments/assets/11090828-a939-496b-9926-a5cfa10608b4)
+
+![image](https://github.com/user-attachments/assets/e8fb0152-7223-4e8e-b03e-c2cc9ccc5f5f)
+
+![image](https://github.com/user-attachments/assets/978da8f3-0b3e-4aa8-a80d-5b7ee7df166e)
